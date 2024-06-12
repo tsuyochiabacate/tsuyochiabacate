@@ -1,4 +1,4 @@
-## Hi there 👋
+## Olá, sou aluna do Francisco Cristiano, e me chamo Jessica 👋
 
 ### Boas vindas ao meu perfil!!!
 
